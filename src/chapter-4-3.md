@@ -1,5 +1,3 @@
-Overcoming Common Challenges with Cultivating Gratitude and Mindfulness
-=========================================================================================================================
 
 In this chapter, we will explore the importance of cultivating gratitude and mindfulness in finding happiness within. We will also discuss some common challenges that people face when trying to cultivate these practices and provide techniques for overcoming them.
 

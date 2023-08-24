@@ -1,5 +1,3 @@
-Chapter 5: Pursuing Passion and Purpose
-=======================================
 
 In this chapter, we will explore the importance of pursuing passion and purpose in achieving greater happiness and fulfillment. We will provide techniques for identifying passions and defining purpose, as well as strategies for overcoming common challenges that may arise along the way.
 

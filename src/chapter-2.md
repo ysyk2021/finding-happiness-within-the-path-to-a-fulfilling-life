@@ -1,5 +1,3 @@
-Chapter 1: Defining Happiness and Fulfillment
-=============================================
 
 In this chapter, we will explore the definitions of happiness and fulfillment, the benefits of finding happiness within, and the impact of external factors on happiness and fulfillment.
 

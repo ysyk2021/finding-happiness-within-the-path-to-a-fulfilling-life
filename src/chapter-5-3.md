@@ -1,5 +1,3 @@
-Overcoming Common Challenges with Relationship-Building
-====================================================================================================
 
 In this chapter, we will explore some common challenges that may arise when nurturing positive relationships and provide strategies for overcoming them.
 

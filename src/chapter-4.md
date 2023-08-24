@@ -1,5 +1,3 @@
-Chapter 3: Cultivating Gratitude and Mindfulness
-================================================
 
 In this chapter, we will explore strategies for cultivating gratitude and mindfulness. We will also discuss techniques for practicing gratitude and mindfulness in daily life, as well as common challenges that individuals may face when trying to cultivate these practices.
 

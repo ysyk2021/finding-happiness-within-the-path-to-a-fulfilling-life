@@ -1,5 +1,3 @@
-Techniques for Assessing Your Current State of Happiness
-==============================================================================================================
 
 In this chapter, we will explore techniques for assessing your current state of happiness. By taking a closer look at the various areas of your life that contribute to your overall well-being, you can gain a better understanding of where you are currently at and begin to make changes that will help you find greater fulfillment and happiness.
 

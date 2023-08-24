@@ -1,5 +1,3 @@
-Chapter 4: Nurturing Positive Relationships
-===========================================
 
 In this chapter, we will explore the importance of positive relationships in finding happiness within. We will discuss strategies for nurturing positive relationships and overcoming common challenges with relationship-building.
 

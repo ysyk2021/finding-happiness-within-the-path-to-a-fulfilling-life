@@ -1,5 +1,3 @@
-Strategies for Cultivating Gratitude and Mindfulness
-======================================================================================================
 
 In this chapter, we will explore strategies for cultivating gratitude and mindfulness. These practices can help you focus on the present moment, appreciate the positive aspects of your life, and develop a greater sense of well-being.
 

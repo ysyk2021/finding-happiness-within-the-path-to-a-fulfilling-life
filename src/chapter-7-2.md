@@ -1,5 +1,3 @@
-Techniques for Prioritizing Physical and Mental Health
-======================================================================================================
 
 In this chapter, we will explore the importance of practicing self-care and well-being for achieving greater happiness and fulfillment. We will provide techniques for prioritizing physical and mental health to support overall well-being.
 

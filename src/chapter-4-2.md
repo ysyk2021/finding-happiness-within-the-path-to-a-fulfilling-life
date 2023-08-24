@@ -1,5 +1,3 @@
-Techniques for Practicing Gratitude and Mindfulness in Daily Life
-===================================================================================================================
 
 In this chapter, we will explore techniques for practicing gratitude and mindfulness in daily life. These practices can help you cultivate a greater sense of well-being, reduce stress and anxiety, and improve your relationships with others.
 

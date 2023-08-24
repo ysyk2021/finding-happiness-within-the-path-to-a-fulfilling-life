@@ -1,5 +1,3 @@
-The Impact of External Factors on Happiness and Fulfillment
-==========================================================================================================
 
 In this chapter, we will explore the impact that external factors can have on our happiness and fulfillment. While finding happiness within oneself is important, it is also important to recognize the role that external factors play in our well-being.
 

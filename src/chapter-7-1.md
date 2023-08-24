@@ -1,5 +1,3 @@
-Strategies for Practicing Self-Care and Well-Being
-==================================================================================================
 
 In this chapter, we will explore some practical strategies for practicing self-care and well-being.
 

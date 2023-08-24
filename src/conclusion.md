@@ -1,4 +1,3 @@
-# Conclusion
 
 Recap of the Book's Content and Key Takeaways
 ---------------------------------------------

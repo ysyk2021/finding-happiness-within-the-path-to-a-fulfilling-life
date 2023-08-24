@@ -1,5 +1,3 @@
-Using Data to Make Informed Decisions about Future Happiness and Fulfillment Initiatives
-======================================================================================================================
 
 In this chapter, we will explore the importance of measuring success when pursuing happiness and fulfillment. We will discuss the benefits of using data to make informed decisions about future initiatives.
 

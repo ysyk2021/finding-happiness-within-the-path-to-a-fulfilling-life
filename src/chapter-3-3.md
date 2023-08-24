@@ -1,5 +1,3 @@
-Overcoming Common Barriers to Happiness
-=============================================================================================
 
 In this chapter, we will explore common barriers to happiness and how to overcome them. By identifying and addressing these barriers, you can begin to make progress toward finding greater fulfillment and happiness in your life.
 

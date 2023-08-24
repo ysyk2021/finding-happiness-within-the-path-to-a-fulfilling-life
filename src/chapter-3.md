@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Current State of Happiness
-====================================================
 
 In this chapter, we will explore techniques for assessing your current state of happiness, identifying areas for improvement, and overcoming common barriers to happiness. By taking a closer look at your life and examining the areas where you may be experiencing dissatisfaction or unhappiness, you can begin to make changes that will help you find greater fulfillment and happiness.
 

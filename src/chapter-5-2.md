@@ -1,5 +1,3 @@
-Strategies for Nurturing Positive Relationships
-============================================================================================
 
 In this chapter, we will explore some practical strategies for nurturing positive relationships.
 
