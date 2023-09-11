@@ -1,5 +1,4 @@
-Chapter: Overcoming Common Challenges with Pursuing Passion and Purpose
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Living a life filled with passion and purpose is a journey that can bring immense joy and fulfillment. However, it is not without its challenges. In this chapter, we will explore common obstacles that individuals face when pursuing their passions and purpose, and discuss strategies to overcome them.
 

@@ -1,5 +1,4 @@
-Chapter: The Impact of External Factors on Happiness and Fulfillment
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our pursuit of happiness and fulfillment, it is crucial to acknowledge the role that external factors play in shaping our well-being. This chapter delves into understanding how external factors can influence our happiness and fulfillment, and explores strategies for navigating their impact.
 

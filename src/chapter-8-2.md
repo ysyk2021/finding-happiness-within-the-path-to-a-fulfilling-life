@@ -1,5 +1,4 @@
-Chapter: Key Metrics for Tracking Progress and Success
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Tracking progress and success is essential on the path to finding happiness and fulfillment. By monitoring key metrics, you can measure your growth, identify areas of improvement, and stay motivated along your journey. In this chapter, we will explore several key metrics for tracking your progress and success.
 

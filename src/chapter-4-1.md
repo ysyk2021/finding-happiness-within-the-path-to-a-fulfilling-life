@@ -1,5 +1,4 @@
-Chapter: Strategies for Cultivating Gratitude and Mindfulness
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Gratitude and mindfulness are powerful practices that can transform our lives and lead to greater happiness and fulfillment. In this chapter, we will explore various strategies that can help individuals cultivate gratitude and mindfulness, allowing them to find joy and meaning in the present moment.
 

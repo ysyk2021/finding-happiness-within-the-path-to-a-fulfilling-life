@@ -1,5 +1,4 @@
-Chapter: Techniques for Identifying Passions and Defining Purpose
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Discovering our passions and defining our purpose is a transformative journey that leads to a fulfilling and happy life. In this chapter, we will explore various techniques that can help individuals identify their passions and define their purpose, enabling them to live a life aligned with their truest desires.
 

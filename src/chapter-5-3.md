@@ -1,5 +1,4 @@
-Chapter: Overcoming Common Challenges with Relationship-Building
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our quest for a fulfilling life, building strong and meaningful relationships is essential. However, this journey is not without its challenges. This chapter explores some common obstacles we encounter when it comes to relationship-building and offers strategies for overcoming them.
 

@@ -1,5 +1,4 @@
-Chapter: The Benefits of Finding Happiness Within
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our quest for happiness and fulfillment, we often look to external sources for validation and joy. However, true and lasting happiness can be found within ourselves. This chapter explores the profound benefits of finding happiness within and how it can transform our lives.
 

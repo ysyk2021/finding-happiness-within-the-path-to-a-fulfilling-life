@@ -1,5 +1,4 @@
-Chapter: Techniques for Prioritizing Physical and Mental Health
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Physical and mental health play an essential role in our ability to lead a fulfilling life. By prioritizing our health, we can enhance our overall well-being, boost our mood, and create the foundation for a happy and fulfilling life. In this chapter, we will explore some techniques for prioritizing physical and mental health.
 

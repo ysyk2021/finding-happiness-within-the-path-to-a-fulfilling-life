@@ -1,5 +1,4 @@
-Chapter: The Importance of Pursuing Passion and Purpose in Happiness and Fulfillment
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of happiness and fulfillment, one crucial factor stands out: the presence of passion and purpose in our lives. When we align our actions with our passions and live a life guided by purpose, we unlock a profound sense of joy and contentment. This chapter explores the significance of pursuing passion and purpose and how it contributes to our overall well-being.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Practicing Self-Care and Well-being
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our pursuit of a fulfilling life, it is essential to prioritize self-care and well-being. This chapter explores various strategies that can help us cultivate a healthier and more balanced lifestyle, enhance our overall well-being, and find happiness from within.
 

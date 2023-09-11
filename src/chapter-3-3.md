@@ -1,5 +1,4 @@
-Chapter: Overcoming Common Barriers to Happiness
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Happiness is a universal aspiration, yet many individuals face common barriers that hinder their ability to experience genuine happiness and lead a fulfilling life. In this chapter, we will explore some of these barriers and provide strategies for overcoming them.
 

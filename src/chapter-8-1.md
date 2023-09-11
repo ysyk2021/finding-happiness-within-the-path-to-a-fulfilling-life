@@ -1,5 +1,4 @@
-Chapter: The Importance of Measuring Success in Happiness and Fulfillment
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring success is a crucial component of achieving happiness and fulfillment. Without an objective way to gauge progress, it's difficult to know whether the actions you are taking are truly leading to greater joy and satisfaction. In this chapter, we will explore why measuring success is so important and provide strategies for how to do so effectively.
 

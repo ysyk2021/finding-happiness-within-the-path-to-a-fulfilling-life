@@ -1,5 +1,4 @@
-Chapter: Overcoming Common Challenges with Self-Care and Well-being
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-care and well-being are vital components of finding happiness and leading a fulfilling life. However, many individuals face common challenges that hinder their ability to prioritize self-care effectively. In this chapter, we will explore some of these challenges and provide strategies for overcoming them.
 

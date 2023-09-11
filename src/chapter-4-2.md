@@ -1,5 +1,4 @@
-Chapter: Techniques for Practicing Gratitude and Mindfulness in Daily Life
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our fast-paced and often chaotic lives, finding happiness and fulfillment can be a challenge. However, by integrating gratitude and mindfulness into our daily routines, we can cultivate a greater sense of well-being, peace, and contentment. This chapter explores techniques for practicing gratitude and mindfulness and how they can enhance our overall happiness.
 

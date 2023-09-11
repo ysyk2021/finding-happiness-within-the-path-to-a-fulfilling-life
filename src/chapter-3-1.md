@@ -1,5 +1,4 @@
-Chapter: Techniques for Assessing Your Current State of Happiness
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Assessing your current state of happiness is an important step towards finding lasting fulfillment in life. Understanding where you stand on the happiness spectrum allows you to identify areas that need attention and develop strategies for improvement. In this chapter, we will explore various techniques for assessing your happiness.
 
